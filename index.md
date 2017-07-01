@@ -5,17 +5,17 @@ Une **approche pragmatique, contemporaine et intuitive** des *Etats Modifiés de
 
 ![IMAGE : Séance à un artiste](SeanceArtiste.jpg)
 
-## 🌟 Expériences, Psychonautisme et Transes Guidées :
+## 🌟 Expériences, Psychonautisme et Transes Guidées
 >  Atteignez des **États insolites, vivez d’incroyables expériences de voyage de l’esprit (*psychonautisme*)** et exploitez sensations, souvenirs et volonté avant, pendant et après. Je vous **accompagne** sobrement dans ces **réalités subtiles, ces dimensions atypiques**. De la **transe chamanique** - *qui vous connecte à vos totems, guides et symboles* - aux **Comas Hypnotiques** - *et leurs possibilités de reprogrammation, au plus profond, jusqu’à l’expression de gènes* -, ***je combine les voies vers ces extases intellectuelles, gnoses éclairées ou explorations abyssales.***
 
-##  🙏 Coaching Mental & Entrainement en Transes :
+##  🙏 Coaching Mental & Entrainement en Transes
 > Nous utilisons pendant la séance des nombreuses techniques de **remémoration, d’induction et d’approfondissement** pour atteindre un Etat Modifié de la Conscience et la Cognition personnalisé, selon vos objectifs et vos besoins … *Sieste récuperatrice, concentration et mémorisation, fluide esthétique, zone athlétique* : les exemples sont nombreux, et ces **transes du quotidien**, rares, souvent inopinées, vous ***deviennent accessibles, à la demande grâce à un systeme d’ancrage que je vous apprendrai.***
 
-##  ⏳ Régressions, Futurisations & Vies Intérieures :
+##  ⏳ Régressions, Futurisations & Vies Intérieures
 > En induisant un **État Régressif**, qui permet un accès incroyable à la mémoire, aux souvenirs et la ligne du temps mentale, je vous permettrai de **revivre, revoir et extraire des informations** de votre passé - mais aussi d’un futur hypothétique déssiné par votre inconscient.
 Pour la simple **exploration** ou pour **récupérer des capacités, informations** et sensations importantes, les régressions sont toujours des expériences fortes et enrichissantes. ***Plongez dans votre mémoire, et découvrez le futur possible de votre inconscient !***
 
-##  🛠 Brain-Hacking & Optimisations Neuronales :
+##  🛠 Brain-Hacking & Optimisations Neuronales
 > Avec des protocoles issus aussi bien de la **Programme Neuro-Linguistique** que de la **Magie du Chaos, du Yoga** - tantra en particulier -, et par la modélisation de façons innovantes et singulières de penser, traiter les perceptions, les informations … **je réactive par différents processus votre plasticité neuronale, autorisant l’intégration de structures cognitives nouvelles**. Des ressources et capacités insoupçonnées, comme découvrir de ***nouveaux sens, devenir multi-tâche et basculer une réflexion “en background”, lire photographiquement, changer sa vue ...***
 
 ![IMAGE : Séance en milieu festif](SeanceFestif.jpg)
@@ -52,4 +52,4 @@ Pour **plus d'informations** ou pour **prendre rendez-vous**, contactez-moi via 
 ` (29/09) ?? `
 
 ------
-*Dernière MaJ : 29/06/2017 - © T. Coché (2017) - Photos par [Blanche Clément](www.blancheclement.com)*
+*Dernière MaJ : 29/06/2017 - © 2017 - Photos par [Blanche Clément](www.blancheclement.com)*
