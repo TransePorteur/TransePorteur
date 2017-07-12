@@ -47,9 +47,9 @@ La durée d’une séance est d’**environ 1h30**, mais peut - dans certains ca
 Pour **plus d'informations** ou pour **prendre rendez-vous**, contactez-moi via **[la page Facebook "Transe Porteur"](https://fb.me/TransePorteur)** ou *[par mail](https://goo.gl/gjvi3s)*.
 
 ------
-` (Maintenant) PARIS, France `
-` (06/07) ?? `
-` (29/09) ?? `
+
+📍Actuellement à **Paris, France** ... ✈️ au **Havre, France** (*du 15 au 21 Juillet*) !
 
 ------
-*Dernière MaJ : 29/06/2017 - © 2017 - Photos par [Blanche Clément](www.blancheclement.com)*
+
+*Dernière MaJ : 12/07/2017 - © 2017 - Photos par [Blanche Clément](www.blancheclement.com)*
