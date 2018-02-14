@@ -23,7 +23,7 @@ Pour la simple **exploration** ou pour **récupérer des capacités, information
 
 # Vision & Engagement ✊
 
-Avec une approche **pragmatique, contemporaine et intuitive** des *États Modifiés de Conscience*, je propose une utilisation intégrée dans le quotidien des Transes, dans un but **psychonautique : voyager dans l’esprit**, en tirer intuition, inspiration et meilleure connaissance de Soi. Proposer une élévation spirituelle, non-dogmatique, personnelle et ouverte. Les notions d'**expérimentation et d’expérience** sont angulaires dans ma pratique.
+Avec une approche **pragmatique, contemporaine et intuitive** des *États Modifiés de Conscience*, je propose une utilisation intégrée des transes dans le quotidien, dans un but **psychonautique : voyager dans l’esprit**, en tirer intuition, inspiration et meilleure connaissance de Soi. Proposer une élévation spirituelle, non-dogmatique, personnelle et ouverte. Les notions d'**expérimentation et d’expérience** sont angulaires dans ma pratique.
 
 Impliqué dans la *scène techno underground*, rave et alternative parisienne, vu comme le **shaman parmi les raveurs**, je propose, sensibilise et initie le public des soirées underground au psychonautisme, par des séances de **découverte de l'(auto-)hypnose**, l'expérimentation de l'altération de la conscience, de la cognition et de la perception, et la meilleure connaissance de Soi qui en résulte. Membre actif de **LATERAL THINKING**, un collectif-label qui s’oriente vers les **“musiques pensantes plutôt que dansantes”**, l’ambient ou le drone et la musique experimentale après avoir organisées des “micro-raves” où parfois étaient mêlées **musique, fête et hypnose.**
 
@@ -32,9 +32,9 @@ Convaincu que les Etats Modifiés de Conscience doivent être l'objet d'une *rec
 ![IMAGE : Portrait](Portrait.jpg)
 
 # Parcours 📚
-Passionné depuis toujours, j'**étudie, expérimente et améliore sa maîtrise des Etats Modifiés de Conscience, de Cognition et de Perception** et vois la transmission de mes connaissances comme une mission, en alliant **techniques millénaires** (*chamanisme, énergétique*) à **des outils modernes** (*hypnose, neuro-thérapies*), **méthodes mystiques** (*magie, tulpamancie*) et **technologies innovantes** (*neuro-feedback, stimulation sensorielle*).
+Passionné depuis toujours, j'**étudie, expérimente et améliore ma maîtrise des Etats Modifiés de Conscience, de Cognition et de Perception** et vois la transmission de mes connaissances comme une mission, en alliant **techniques millénaires** (*chamanisme, énergétique*) à **des outils modernes** (*hypnose, neuro-thérapies*), **méthodes mystiques** (*magie, tulpamancie*) et **technologies innovantes** (*neuro-feedback, stimulation sensorielle*).
 
-**Formé à l’ARCHE à l’Hypnose Ericksonienne**, à la PNL et au RITMO (*technique mêlant EMDR et Hypnose*), **par Hype-N-Ose à l’Hypnose Elmanienne et aux transes H-Ultra** (*Coma Hypnotique, Hypnose Profonde*), **par Sobhi Levi à l'Énergétique** plus particulièrement au *Quantum Touch* et **par Tamás Pataki au Reiki**. Mes nombreux échanges avec des praticiens aux techniques diverses, par des workshops, conférences et formations, je me suis enrichi d’une **multitude de techniques, méthodes** aux inspirations variées.
+**Formé à l’ARCHE à l’Hypnose Ericksonienne**, à la PNL et au RITMO (*technique mêlant EMDR et Hypnose*), **par Hype-N-Ose à l’Hypnose Elmanienne et aux transes H-Ultra** (*Coma Hypnotique, Hypnose Profonde*), **par Sobhi Levi à l'Énergétique** plus particulièrement au *Quantum Touch* et **par Tamás Pataki au Reiki**. Mes nombreux échanges avec des praticiens aux techniques diverses, par des workshops, conférences et formations, je me suis enrichi d’une **multitude de techniques et méthodes** aux inspirations variées.
 
 
 ![IMAGE : Séance à un groupe](SeanceGroupe.jpg)
@@ -50,8 +50,8 @@ Pour **plus d'informations** ou pour **prendre rendez-vous**, contactez-moi via 
 
 📍Actuellement à **Paris, France** ...
 
-📆 **30 Sept.** : *[RBMA Festival Paris : Une Nuit à Montreuil @ Studio Lavoir](https://goo.gl/kdjQNU)*
+
 
 ------
 
-*Dernière MaJ : 01/08/2017 - © 2017 - Photos par [Blanche Clément](www.blancheclement.com)*
+*Dernière MaJ : 14/02/2018 - © 2018 - Photos par [Blanche Clément](www.blancheclement.com)*
